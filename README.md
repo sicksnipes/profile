@@ -3,7 +3,7 @@
 Currently active on the Minecraft Marketplace.
 
 - 📫 How to reach me: <br>
-Web: https://cre8.systems;<br>
+Web: https://sicksnipes.myportfolio.com;<br>
 Twitter: https://twitter.com/sicksnipes0001;<br>
 Discord Tag: SickSnipes#0001;<br>
 
